@@ -44,4 +44,4 @@ Entwickelt für den professionellen Live-Event-Betrieb — von Kongressen und Me
 
 ---
 
-**[peerstelter.de](https://peerstelter.de)** · [LinkedIn](https://www.linkedin.com/in/peer-stelter-88371827b)
+**[peerstelter.de](https://peerstelter.de)** · [LinkedIn](https://www.linkedin.com/in/peerstelter/)
